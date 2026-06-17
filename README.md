@@ -1,6 +1,6 @@
 CHƯƠNG 1. KHÁI QUÁT VỀ KINH TẾ CHÍNH TRỊ MÁC – LÊNIN
 1. Sự hình thành và phát triển
-•	Antoine Moncretien (Pháp) sử dụng thuật ngữ Kinh tế chính trị lần đầu năm 1615. 
+•	Antoine Moncretien (Pháp) sử dụng thuật ngữ Kinh tế chính trị lần đầu năm 1615    . 
 •	Chủ nghĩa trọng thương: 
 o	Trường phái KTCT đầu tiên. 
 o	Đề cao vai trò của thương mại. 
